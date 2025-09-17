@@ -88,7 +88,7 @@ My expertise blends **Machine Learning, NLP, and Data Mining** with strong skill
 ---
 
 ## 📫 Let's Connect  
-💼 [LinkedIn](https://www.linkedin.com/in/oumaima-bounekhla/)  
+💼 [LinkedIn](https://www.linkedin.com/in/oumaima-bounekhla-014734222)  
 🐱 [GitHub](https://github.com/Oumib)  
 📧 Email: bounekhlaoumaima@gmail.com  
 
